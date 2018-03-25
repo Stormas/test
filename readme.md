@@ -1,1 +1,1 @@
-Orda sosat
+sosat
